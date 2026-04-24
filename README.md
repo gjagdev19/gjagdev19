@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=gjagdev19" alt="gjagdev19" /></a> </p>
 
-- 🔭 I’m currently working on **Analyzing datasets for experience**
+- 🔭 I’m currently working on **Analyzing datasets to practice and gain proficiency**
 
 - 🌱 I’m currently learning **Python, Data Analytics using Python, Advanced Excel**
 
