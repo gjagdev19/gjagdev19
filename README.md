@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Analyzing datasets to practice and gain proficiency**
 
-- 🌱 I’m currently learning **Python, Data Analytics using Python, Advanced Excel**
+- 🌱 I’m currently learning **Python, Data Analytics using Python**
 
 - 👨‍💻 All of my projects are available at [https://1drv.ms/f/c/a541ea8a360ed455/IgAFMV6Jwzv1TKl5nAf1gD6sAeNB6EBz7_L59X-XrI4GjBc?e=hhWPNo](https://1drv.ms/f/c/a541ea8a360ed455/IgAFMV6Jwzv1TKl5nAf1gD6sAeNB6EBz7_L59X-XrI4GjBc?e=hhWPNo)
 
