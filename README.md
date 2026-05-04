@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **gjagdev19@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/w/c/a541ea8a360ed455/IQA3L7Bv7eo_QLYZht-cBpuVAVdT6TlWneSPojWCfr-b5pU?e=X79mwb](https://1drv.ms/w/c/a541ea8a360ed455/IQA3L7Bv7eo_QLYZht-cBpuVAVdT6TlWneSPojWCfr-b5pU?e=X79mwb)
+- 📄 Work experiences at  [https://1drv.ms/f/c/a541ea8a360ed455/IgBdyLXJ_eebSatT0jrnX8vyAd8YP_Kh-yUoPF61LHfqzzw?e=IfycMc](https://1drv.ms/w/c/a541ea8a360ed455/IQA3L7Bv7eo_QLYZht-cBpuVAVdT6TlWneSPojWCfr-b5pU?e=X79mwb](https://1drv.ms/f/c/a541ea8a360ed455/IgBdyLXJ_eebSatT0jrnX8vyAd8YP_Kh-yUoPF61LHfqzzw?e=IfycMc)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
